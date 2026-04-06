@@ -1,0 +1,3 @@
+- That response was over-engineered and tries way too hard to sound smart. It comes off as insecure, not confident. A real human, especially a busy founder, would keep it simple, curious, and low-commitment.
+    
+- The goal here isn't to prove your IQ; it's to build rapport and keep the door open with minimal effort. You're not sure if you want to collaborate yet, so your response should be open-ended and let you gather more information.

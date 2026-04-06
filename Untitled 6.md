@@ -1,0 +1,7 @@
+- The pattern: Vulnerability = specific, emotional, consistent. Performance = reactive, contradictory, defensive.
+- When you're alone at 3am and not performing for anyone - not trying to sound smart, edgy, strategic, or impressive - what do you actually want?
+- Your pattern in this conversation:
+- You want connection (said it explicitly)
+- You want significance (not being a "nobody")
+- You want autonomy (freedom, money to go anywhere)
+- Underneath everything: you want to matter
